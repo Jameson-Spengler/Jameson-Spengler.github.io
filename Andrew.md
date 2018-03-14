@@ -1,0 +1,17 @@
+# Jeepers Creepers 2 (2003)
+One of my favorite horror films as a child was 2001's *Jeepers Creepers*
+It was a genuinely terrifying film with some interesting cinematography, engrossing lore, and a couple fun campy moments. Its wretched sequel *Jeepers Creepers 2* hardly measures up to the original.
+## Characters
+In the original film, the Jenner siblings were likable and believable because they were given many layers of characterization. They acted like loving siblings and college kids with problems beyond school. When the Creeper went after them, there was enough there to make them more than just horror movie chattel. *Jeepers Creepers 2*,
+<img src ="footbal.jpg" style = "width: 260px; float: right;
+ margin-left:5px; margin-top: 10px; margin-bottom: 10px">
+ however, only has cattle Characters for cheap horror movie slaughter. They're high-school football players with their bus driver, and coaches. The coaches and the driver die so quickly, only their occupations really stand out as significant traits. The football players had names, but they might as well have been named "Jock 1, Jock 2, Secretly Gay Jock, Douche Jock, Depressed Jock, Jock that dies first, etc." There is a farmer character whose son the Creeper took 23 years earlier. He's a little better in that he's an angry blue-collar dad out for revenge kind of guy with a giant harpoon gun. Beyond that, however, he's pretty shallow as a character. If the movie mainly characterized the farmer instead of the foot-ball players, the movie would've had more focus.
+## The Monster
+<img src ="Creeper.jpg" style = "width: 220px; float: right;
+ margin-left:10px;">
+The monster was effective in the original movie because it was subtly shown. When the Creeper appeared, it was at a distance, somewhat in the shadows, etc. The Creeper was shown full exposure only a few times to maximize it's appearance after building up its reveal. The monster is supposed to, by it's lore, be elusive and mysterious. In JC2, he's clearly seen so many times, he might as well be a typical slasher villain. It's inconsistent with the monster's appeal and makes him less scary. Also, the original film had a 1930s song "Jeepers Creepers" as its iconic theme which was sadly absent in JC2.
+## Ending
+The ending to *Jeepers Creepers 2* is ridiculously stupid. Since it's a trash movie, I don't care about spoiling it. The farmer manages to tear it apart, but the Creeper doesn't die. It runs out of time and has to go back into its 23 year hibernation. So the farmer who tore the monster up, decides to hang it in his barn and waits 23 years so he can try to kill it again. Are you serious?! The man's like a feeble old man at this point and he didn't bring any backup to help him. No police, no military, no farmer's union. Not a single person-except his other son. Yeah, he has another son I forgot about, but he's so forgettable, I only just remembered. I'm going to keep this in the script to showcase the movie's poor characterization. Also, it looks like he stitched the monster back together for some reason. Why? Why would you do that?
+<img src ="ending.png" style = "width: 35000px">
+## Conclusion
+*Jeepers Creepers 2* is awful. Don't watch unless you are a masochist. I recommended watching the original *Jeepers Creepers*, however. It's got some great scenes that I still remember to this day like the police station shoot out, the running over scene, the sky is falling scene, etc.  
